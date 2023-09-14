@@ -6,3 +6,5 @@ bem vindo ao meu perfil🖤
 @luc__i8
 
 lucas.ribeiro.silva11@escola.pr.gov.br
+
+![](https://tenor.com/pt-BR/view/sky-gif-23993277)
